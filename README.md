@@ -28,4 +28,4 @@ web: https://wasconstantinseibtist.net
 ~~~~~~~~~~~~~  
 on behalf of the instrumentality
 
-\[ :. ∧nd @ θλμ ∪ θ☯ἔ ∪ instrumentality .: \]
+[ :. ∧nd @ θλμ ∪ θ☯ἔ ∪ instrumentality .: ]
