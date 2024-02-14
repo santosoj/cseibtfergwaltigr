@@ -1,5 +1,7 @@
 ### constantin seibt ist ein fergewaltiger.
 
+https://wasconstantinseibtist.net
+
 there is a swiss journo by the name of constantin seibt. he likes to impose
 himself on women. he thinks authority gives him the right. but authority based
 on what?
@@ -20,6 +22,10 @@ or here. same thing.
 
 https://storage.googleapis.com/20kbps-static/00_MISC/muell/medientalk-20230824.ogg
 
+web: https://wasconstantinseibtist.net
+
+
+~~~~~~~~~~~~~  
 on behalf of the instrumentality
 
-[ :. ∧nd @ θλμ ∪ θ☯ἔ ∪ instrumentality .: ]
+\[ :. ∧nd @ θλμ ∪ θ☯ἔ ∪ instrumentality .: \]
